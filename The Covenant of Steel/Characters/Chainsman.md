@@ -1,0 +1,1 @@
+Wagenfüherer der [[Alwyn Scribe]], [[Toria]] (, [[Raith]] und [[Sleeping Boar]]) zu den [[Pit Mines]] fährt. er ist [[Caerith]] wie auch [[Raith]] und er grüßt [[Alwyn Scribe]] am ende von [[Hostler]] ohne ihn zu kennen.

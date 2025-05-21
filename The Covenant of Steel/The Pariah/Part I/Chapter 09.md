@@ -1,0 +1,1 @@
+[[Alwyn Scribe]] flüchtet in den Wald. Erchels Bande, die [[Drenk Cutter]] waren noch nicht am [[Moss Mill]] angekommen - (Verrat?). [[Alwyn Scribe]] erreicht [[Leffold Glade]] und bedient sich an einem Essens stash.

@@ -1,0 +1,1 @@
+berichtet [[Ascendant Hilbert]] von der anstehenden ankunft von [[Captain Evadine Courlain]] um Freiwillige zu suchen. Er gewährt [[Alwyn Scribe]] auch die absolution aus [[Callintor]] raus zu kommen nachdem er [[Erchel]] umgebracht hat.

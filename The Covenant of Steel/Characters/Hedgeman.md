@@ -1,0 +1,1 @@
+sehr flubiger Neuankömmling in den [[Pit Mines]] der erst 3 Jahre nach [[Alwyn Scribe]] angekommen ist.

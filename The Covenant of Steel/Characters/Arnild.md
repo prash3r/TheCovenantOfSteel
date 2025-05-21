@@ -1,0 +1,1 @@
+Ein scribe in [[Callintor]] dessen Expertise es ist Blattgold aufzutragen. [[Alwyn Scribe]] schaut vermutlich zu ihm auf weil er der einzige ist von dem er noch etwas lernen kann.

@@ -1,0 +1,1 @@
+[[Alwyn Scribe]] realisiert dass auch [[Captain Evadine Courlain]] das selbe will wie [[Ascendant Sihlda]] und dass [[Alwyn Scribe]] es _durchführen_ muss.

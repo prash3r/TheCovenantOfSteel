@@ -1,0 +1,3 @@
+Nach drei Monaten in [[Callintor]] will [[Alwyn Scribe]] auch von dort fliehen auf Grund von Langeweile. [[Alwyn Scribe]] ist dabei das echte Testament zu entschlüsseln und hält es sogar vor [[Toria]] geheim. Beim Pläne schmieden kommt der Nachbar und berichtet dass [[Brewer]] am Friedhof predigt. [[Alwyn Scribe]] macht sich alleine auf den Weg dorthin um [[Brewer]] raus zu holen bevor es eskaliert.
+
+Auf dem Rückweg sehen die beiden Neuankömmlinge und unter anderen [[Erchel]] aus [[Deckin Scarl]]s Bande von dem [[Alwyn Scribe]] vermutlich meint ihn töten zu müssen. [[Brewer]] bietet an es zu tun doch Alwin schickt ihn zum Haus und schreitet selbst los. Er verfolgt [[Erchel]].

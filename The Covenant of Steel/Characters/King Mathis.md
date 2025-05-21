@@ -1,0 +1,1 @@
+[[Hostler]] war mal Ritter für [[King Mathis]] während [[Sir Ehlbert Bauldry]]  ebenfalls Ritter von Covenant and Crown war.

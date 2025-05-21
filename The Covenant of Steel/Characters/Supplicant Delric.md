@@ -1,0 +1,1 @@
+Healer der [[Covenant Company]] 

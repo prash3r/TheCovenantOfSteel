@@ -1,0 +1,1 @@
+Lockpicker erwähnt bei der Party in [[Chapter 02]]. beschrieben als lover von [[Justan]].

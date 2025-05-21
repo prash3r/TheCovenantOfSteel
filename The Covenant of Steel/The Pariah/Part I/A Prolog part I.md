@@ -1,0 +1,1 @@
+Testament pf the Pretender  Magnis Lochlain sais that Sir Alwin Scribe is a loot bloodier then him. Alwyn Scribe records this in writing.

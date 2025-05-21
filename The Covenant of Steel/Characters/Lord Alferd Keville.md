@@ -1,0 +1,1 @@
+Ehemann von der Schwester von [[King Tomas (the Pincher)]]. Stirbt kurz bevor [[Alwyn Scribe]] aus den [[Pit Mines]] entkommt. [[Ascendant Sihlda]] kannte ihn wohl und mochte ihn - da könnte aber auch mehr hinter stecken. es wird gemunkelt, dass er vergiftet wurde.

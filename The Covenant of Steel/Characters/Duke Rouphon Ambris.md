@@ -1,0 +1,1 @@
+Führt Krieg gegen den Krieg in [[King]] hat 3 Score men-at-Arms verloren die jetzt für den [[King]] kämpfen laut der in [[Chapter 02]] abgefangenen Nachricht. Auf der Seite des 

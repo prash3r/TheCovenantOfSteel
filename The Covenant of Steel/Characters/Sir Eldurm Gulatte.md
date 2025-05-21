@@ -1,0 +1,1 @@
+Auch [[Sir Eldurm Gulatte]].  Besitzer von [[Castle Eldurm]] und den [[Pit Mines]].

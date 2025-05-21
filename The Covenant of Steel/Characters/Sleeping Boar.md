@@ -1,0 +1,1 @@
+Fetter typ der mit [[Alwyn Scribe]] und [[Toria]] in Richtung der [[Pit Mines]] transportiert wird, dabei kein Lebenszeichen von sich gibt und am dritten tag stirbt, sodass [[Alwyn Scribe]] ihn entsorgen muss und die chance zum entkommen hätte, die er nicht wahnimmt weil er glaubt im kalten moor nicht zu überleben.

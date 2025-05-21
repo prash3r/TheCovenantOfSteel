@@ -1,0 +1,1 @@
+große Höhle und Versammlungsstätte und Predigungshalle in den [[Pit Mines]]

@@ -1,0 +1,1 @@
+Die religiöse Kompanie des Krieges von [[King Tomas (the Pincher)]] gegen [[Magnus (pretender king) Lochlain]].

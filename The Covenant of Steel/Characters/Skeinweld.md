@@ -1,0 +1,1 @@
+Sword of the Altvar Anführer der [[Ascarlian]] Truppe die in [[Shavine Marches]] trespassing von den Outlaws aufgegriffen werden.

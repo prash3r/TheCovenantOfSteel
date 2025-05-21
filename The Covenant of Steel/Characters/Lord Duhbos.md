@@ -1,0 +1,1 @@
+hat seinen Sitz in [[Castle Duhbos]] und angeblich keinen Goldschatz den die outlaws wollen. Verheiratet mit der Schwester von dem neuen [[Duke Elbyn Blousset]] der [[Shavine Marches]].

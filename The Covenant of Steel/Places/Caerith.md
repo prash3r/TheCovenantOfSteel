@@ -1,0 +1,1 @@
+Herkunft von [[Raith]] entweder örtlich oder kulturell, ist unklar. Wird am Ende vom #Botenkolonne-Überfall erwähnt.

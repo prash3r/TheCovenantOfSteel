@@ -1,0 +1,1 @@
+Onkel von [[Erchel]]. Leader seiner Cutter Tribe. Macht im Osten der Shavine Forest Gegend mit 6 anderen Familien.

@@ -1,0 +1,1 @@
+"The Hounds Liar, thats where to find it" sagt [[Erchel]]. [[Alwyn Scribe]] erinnert sich an den Satz "Where the Hound lays his head" von [[Deckin Scarl]] im selben zusammenhang

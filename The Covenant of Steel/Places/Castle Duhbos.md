@@ -1,0 +1,1 @@
+Sitz von [[Lord Duhbos]] und Ort des Goldschatzes das [[Deckin Scarl]] den outlaw Leadern als Beute versprochen hat.

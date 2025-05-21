@@ -1,0 +1,3 @@
+3 Tage später stirbt der [[Sleeping Boar]] und [[Alwyn Scribe]] muss ihn entsorgen. Der [[Chainsman]] sagt er kann laufen und er wird nicht verfolgt aber [[Toria]] wird nichts zu essen und zu trinken bekommen und sterben. [[Alwyn Scribe]] evaluiert ob er es schaffen könnte aber im kalten Moor ist sein überleben unwahrscheinlich.
+
+Der Chainsman denkt dass er nur aus Schlauheit nicht geflohen ist. Und richtet ihn dann aus „Hostler wants to know if you are still an ingrate. I think I will tell him that you most certainly are.“

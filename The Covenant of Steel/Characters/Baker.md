@@ -1,0 +1,1 @@
+Outlaw bester Bogenmann. Liegt im [[Izzie the Clutch]] Inn im sterben als das Dorf [[Moss Mill]] überfallen wird während die outlaws dort Kampieren.
