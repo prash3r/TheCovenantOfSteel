@@ -4,7 +4,7 @@ publish = "public"
 
 [build.environment]
 # (Optional) Text in landing page button
-LANDING_BUTTON = "Ich möchte gespoilert werden!"
+LANDING_BUTTON = "Spoilerstand: Part II fertig"
 # (Optional) Site description on landing page
 LANDING_DESCRIPTION = "content summary of the book series The Covenant of Steel by Anthony Ryan as collected by a book club"
 # (REQUIRED) The Markdown page linked to landing page button (e.g. put home for ./home.md)
