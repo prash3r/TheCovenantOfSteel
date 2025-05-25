@@ -1,1 +1,1 @@
-Knight Commander of Crown Conpany. Hat den [[Duke Rouphon Ambris]] gefangen genommen und die Nachricht darüber an [[King Tomas (the Pincher)]] wurde von den Gesetzlosen abgefangen.
+Knight Commander of Crown Conpany. Hat den [[Duke Rouphon Ambris]] gefangen genommen und die Nachricht darüber an [[King Tomas (the Pincher) Algathinet]] wurde von den Gesetzlosen abgefangen.

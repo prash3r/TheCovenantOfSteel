@@ -1,1 +1,1 @@
-Erobert vom [[King Tomas (the Pincher)]] 
+Erobert vom [[King Tomas (the Pincher) Algathinet]] 

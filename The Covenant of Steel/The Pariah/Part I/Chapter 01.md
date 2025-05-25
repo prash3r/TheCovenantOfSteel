@@ -10,7 +10,7 @@ Es kommt eine königliche Kolonne für einen königlichen Boten. Er tut verkrüp
 
 [[Deckin Scarl]] (der Informant) ist beim Überfall dabei und kämpft mit dem einzigen Überlebenden 1 gegen 1 und gewinnt. 
 
-[[Lorine]] liest die Nachricht des Messengers und [[Deckin Scarl]] schickt den Messenger weiter zu [[King Tomas (the Pincher)]].
+[[Lorine]] liest die Nachricht des Messengers und [[Deckin Scarl]] schickt den Messenger weiter zu [[King Tomas (the Pincher) Algathinet]].
 
 Finden heraus dass der König eine Schlacht gewonnen haben muss. (Und dass er seine Seite gewechselt hat?)
 

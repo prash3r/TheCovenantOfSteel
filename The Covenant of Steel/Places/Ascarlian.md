@@ -2,6 +2,6 @@ Es wurden mercenaries gefunden die mit Fjord Geld verbündet sind auf der Seite 
 
 Ascarlians sind von [[Albermaine]]
 
-Das Gebiet wurde mal von einem Vorgänger von [[King Tomas (the Pincher)]] Vorfahren erobert. 
+Das Gebiet wurde mal von einem Vorgänger von [[King Tomas (the Pincher) Algathinet]] Vorfahren erobert. 
 
 [[Skeinweld]] und [[Berrine]] sind von denen. Die Gruppe ist auch 

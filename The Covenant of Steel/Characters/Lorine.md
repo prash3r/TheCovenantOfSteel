@@ -6,3 +6,5 @@ Sie bekommt im [[Chapter 01]] die Nachricht überreicht zum vorlesen.
 
 Anwesend:
 #Botenkolonne-Überfall 
+
+Später dann Frau von [[Duke Elbyn Blousset]] und damit douchess of the [[Shavine Marches]].

@@ -1,0 +1,6 @@
+Übersetzung eines Buches das sie [[Alwyn Scribe]] mit gibt. [[Sack Witch]] sagt dass der [[Chainsman]] ihn zurückkaufen wollte weil sein Fluch ihm verraten hat dass [[Alwyn Scribe]] den [[Chainsman]] töten wird. “So you came to me on a field of blood after all” (Prophezeiung?). Sie gibt ihm das [[Book]] in einer Sprache der [[Caerith]] genauer [[Caerith Wastes]]. Sie werden sich wieder treffen und bis dahin wird [[Alwyn Scribe]] das Buch übersetzt haben und dann wird er eine sehr viel teurere Schuld aufnehmen.
+
+[[Brewer]] schläft den gesamten Tag und folge acht und hat danach keine Erinnerung a die [[Sack Witch]]. 
+Die anderen Soldaten reisen ab. [[Covenant Company]] kümmert sich um die Toten.
+
+[[Wilhum Dornmahl]] zieht den Toten [[Sir Eldurm Gulatte]] aus dem Wasser. Alle werden beerdigt und bei der Grabesrede tauch [[Sir Althus Levalle]] auf und bringt den Maschbefehl nach Norden. Sehr weit nach Norden. Das Ziel ist [[Alwin]] nicht bekannt aber sowohl [[swain]] als auch [[Caption]] sind sauer uber den Befehl.

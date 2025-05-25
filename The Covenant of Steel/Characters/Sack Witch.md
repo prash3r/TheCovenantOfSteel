@@ -1,0 +1,1 @@
+Heilt [[Brewer]] im camp von [[kings host]] und gibt [[Alwyn Scribe]] ein [[Caerith]] Buch zum übersetzen mit. Sie prophezeit ein zweites Treffen bei dem [[Alwyn Scribe]] einen sehr viel größeren/teureren Gefallen verlangen wird.

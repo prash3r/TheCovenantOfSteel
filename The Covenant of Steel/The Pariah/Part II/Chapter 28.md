@@ -1,0 +1,5 @@
+Auf dem Rückweg ins Camp treffen [[Alwyn Scribe]] und [[Caption]] auf [[Sir Eldurm Gulatte]]. Dieser fordert dass [[Alwyn Scribe]] ihm übergeben wird, aber [[Caption]] fordert ihn zum Kampf um ihn auf.
+
+[[Caption]] erzählt wie [[Caption]] und [[Sir Eldurm Gulatte]] und ein [[Wilhum]] früher am Hof des Königs immer gekämpft haben und [[Sir Eldurm Gulatte]] habe immer gewonnen aber sie hat dazugelernt. [[Alwyn Scribe]] verspricht [[Caption]] eine Kopie des Testaments von [[Ascendant Sihlda]]. [[Caption]] bittet [[Alwyn Scribe]] und das [[Trio]] heute nicht weg zu rennen. [[Alwyn Scribe]] sagt er will nicht für die Krone sterben. [[Alwyn Scribe]] verspricht heute nicht abzuhauen als Bezahlung für die Rettung. Auch weil er Lorine nicht naher kommt wenn er abhaut.
+
+Akturial [[Alwyn Scribe]] merkt noch etwas anderes beängstigendes in dem Moment im Nachhinein.

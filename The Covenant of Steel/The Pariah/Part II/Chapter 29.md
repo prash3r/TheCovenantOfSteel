@@ -1,0 +1,1 @@
+Marsch in die schlacht. Rede von [[King Tomas (the Pincher) Algathinet]]. [[Sir Ehlbert Bauldry]] weist [[King Tomas (the Pincher) Algathinet]] auf die ankommenden Gegner hin. Gegner charges sie a und das Battle was joined.

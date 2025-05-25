@@ -1,1 +1,1 @@
-Die religiöse Kompanie des Krieges von [[King Tomas (the Pincher)]] gegen [[Magnus (pretender king) Lochlain]].
+Die religiöse Kompanie des Krieges von [[King Tomas (the Pincher) Algathinet]] gegen [[Magnus (pretender king) Lochlain]].

@@ -1,0 +1,1 @@
+Vater von [[Captain Evadine Courlain]] und auch als Black Rose von Coravel bekannt.
