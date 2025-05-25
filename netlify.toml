@@ -73,7 +73,7 @@ GRAPH_OPTIONS = """
         	width: "100%",
         	physics: {
 				solver: "forceAtlas2Based",
-				stabilization: true
+				stabilization: false
         	},
         }
         """
