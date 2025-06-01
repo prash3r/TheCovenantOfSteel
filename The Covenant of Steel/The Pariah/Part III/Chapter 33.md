@@ -1,0 +1,13 @@
+[[Toria]] friert im eisigen Seewind auf dem Boot [[Gracious Maid]] in der [[Cronsheldt Sea]]. Sie segeln seit 3 Tagen von [[Farinsahl]] aus wo die [[Covenant Company]] 6 tage nach Abmarsch vom [[Traitors Field]] angekommen sind. [[Covenant Company]] reist mit 8 Booten mit der [[Northern Crown Fleet]].
+
+Nach der Schlacht auf dem [[Traitors Field]] wurde [[Captain Evadine Courlain]] von Communicant zu Aspirant befördert. Die neue Mission der [[Covenant Company]] ist den letzten Widerstand des pretender Kings zu zerschlagen und dafür nach [[Fjord Geld]] und [[Olversahl]] segeln. War eine Bastion von [[Magnus (pretender king) Lochlain]] gegeben von [[Duke Huelvic]], der auf dem [[Traitors Field]] gestorben ist. Seine Ländereien wurden vom Volk zurück genommen und zurück an [[King Tomas (the Pincher) Algathinet]] gegeben. Die [[Covenant Company]] und [[Crown Company]] soll nun diese Ländereien für [[King Tomas (the Pincher) Algathinet]] beschützen.
+
+[[Wilhum Dornmahl]] scheint ein Alkoholproblem zu entwickeln. [[Wilhum Dornmahl]] ist nut Titellos und teil der [[Crown Company]]. 
+
+[[Wilhum Dornmahl]] erzählt dass der große Bruder von [[King Tomas (the Pincher) Algathinet]] hätte König [[Arthin the Fifth]] werden sollen aber bei einem Reitunfall gestorben ist. [[Princess Leannor]] ist die ältere Schwester von [[King Tomas (the Pincher) Algathinet]] der von ihr als auch [[Sir Ehlbert Bauldry]] guidance erfahren hat. Es gibt ein Gerücht dass [[Captain Evadine Courlain]] den [[Magnus (pretender king) Lochlain]] hat absichtlich leben lassen beim Kampf auf [[Traitors Field]]. [[Olversahl]] wurde bevor es von dem vater von [[King Mathis]] eingenommen wurde von [[The Sister Queens of Ascarlia]] regiert. Es gibt eine alte Bibliothek ([[The Library of King Aeric]]) in [[Olversahl]].
+
+[[Alwyn Scribe]] plant Informationen über [[Lachlains Hoard]] in der [[The Library of King Aeric]] zu finden und dann die [[Covenant Company]] mit [[Toria]] (und [[Brewer]]) zu verlassen.
+
+Die [[Covenant Company]] und insbesondere [[Captain Evadine Courlain]] wird begrüßt von [[Sir Maritz Fohlvast]]. [[Covenant Company]] wird untergebracht im [[Shrine to Martyr Athil in Oversahl]].
+
+Es werden die Verteidigungsanlagen von [[Olversahl]] inspiziert und für gut befunden. [[Olversahl]] ist quasi belagert - kaum Handel mehr ins innere Land. [[Wilhum Dornmahl]] und [[Alwyn Scribe]] sollen reconnaissance betreiben. [[Wilhum Dornmahl]] weil er im Mid-Geld geboren wurde und [[Alwyn Scribe]] weil er ein Auge für Zahlen hat und die Gegner Mengen einschätzen kann. Wobei der Befehl eher nach einer Bestrafung gegeben wurde.

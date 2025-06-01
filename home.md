@@ -9,7 +9,12 @@ Das Buch handelt um den Hauptcharakter [[Alwyn Scribe]] und seine Abenteuer.
 
 #### Part II
 [[A Prolog part II]]
-[[Chapter 17]] [[Chapter 18]] [[Chapter 19]] [[Chapter 20]] [[Chapter 21]] [[Chapter 22]] [[Chapter 23]] [[Chapter 24]] [[Chapter 25]] [[Chapter 26]] [[Chapter 27]]
+[[Chapter 17]] [[Chapter 18]] [[Chapter 19]] [[Chapter 20]] [[Chapter 21]] [[Chapter 22]] [[Chapter 23]] [[Chapter 24]] [[Chapter 25]] [[Chapter 26]] [[Chapter 27]] [[Chapter 28]] [[Chapter 29]] [[Chapter 30]] [[Chapter 31]] [[Chapter 32]]
+
+#### Part III
+[[A Prolog part III]]
+[[Chapter 33]] [[Chapter 34]] [[Chapter 35]] [[Chapter 36]] [[Chapter 37]] [[Chapter 39]]
+
 
 ## Character
 
