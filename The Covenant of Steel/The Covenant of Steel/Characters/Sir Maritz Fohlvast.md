@@ -1,0 +1,1 @@
+Händler in [[Olversahl]]. mit Ankunft von [[Captain Evadine Courlain]] zum Lord ernannt. "Knight of the Realm and Defender of the Mid-Fjord". 

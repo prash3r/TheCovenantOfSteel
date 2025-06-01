@@ -1,0 +1,1 @@
+Schatzsucher für die Krone der in vergangener Zeit auf der Suche nach [[Lachlains Hoard]] war.

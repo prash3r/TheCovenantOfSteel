@@ -3,3 +3,5 @@ Die [[Ascarlian]] Anführerin nachdem [[Skeinweld]] das Genick gebrochen wurde. 
 Von den  [[Skardryken]].
 
 Aber sie ist eher [[Albermaine]] als [[Ascarlian]] 
+
+kann schreiben, aber besser zeichnen. Kann außer Albermanisch auch Ascarlian runic schreiben und lesen.

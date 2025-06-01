@@ -1,0 +1,1 @@
+Hafenstadt im Norden bei [[Fjord Geld]]. Liegt am [[Aerics Fjord]]. In der nähe ist ein großer Berg [[Mount Halthir]]. Handelsstadt.  Handelt wolle für Getreide. Mühlen auf dem Berg und Schafe in der umgebung. Heimat der [[The Library of King Aeric]].

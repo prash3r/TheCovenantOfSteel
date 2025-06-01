@@ -1,0 +1,1 @@
+Toter großer bruder von [[King Tomas (the Pincher) Algathinet]] der eigentlich hätte König werden sollen aber bei einem reitunfall gestorben ist.

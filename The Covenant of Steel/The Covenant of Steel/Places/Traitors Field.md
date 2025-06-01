@@ -1,0 +1,1 @@
+Ort der ersten Schlacht der [[Covenant Company]] at the [[kings host]].

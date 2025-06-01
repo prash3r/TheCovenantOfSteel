@@ -1,0 +1,1 @@
+Kompanie des Königs. Kämpft mit [[Covenant Company]] zusammen.

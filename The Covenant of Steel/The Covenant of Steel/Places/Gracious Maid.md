@@ -1,0 +1,1 @@
+Boot auf der [[Cronsheldt Sea]] auf dem [[Alwyn Scribe]] mit der [[Covenant Company]] das erste mal zur See fährt.

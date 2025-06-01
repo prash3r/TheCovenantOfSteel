@@ -1,0 +1,3 @@
+[[Wilhum Dornmahl]] bringt [[Alwyn Scribe]] das reiten bei und ein bisschen Ritterlicher Kampf auf dem Pferd. 5 Tage Reitschule bevor die beiden sich auf den Weg machen.
+
+[[Alwyn Scribe]] wird vor Abreise zutritt zur [[The Library of King Aeric]] verwährt. Auf dem Rückweg wird er von [[Berrine]] angesprochen. Die beiden verabreden sich um in der Nacht in die Bibliothek zu gehen sofern [[Alwyn Scribe]] ihr ehrlich erzählt was er sucht.

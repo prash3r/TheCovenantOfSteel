@@ -3,4 +3,4 @@
 [[Brewer]] schläft den gesamten Tag und folge acht und hat danach keine Erinnerung a die [[Sack Witch]]. 
 Die anderen Soldaten reisen ab. [[Covenant Company]] kümmert sich um die Toten.
 
-[[Wilhum Dornmahl]] zieht den Toten [[Sir Eldurm Gulatte]] aus dem Wasser. Alle werden beerdigt und bei der Grabesrede tauch [[Sir Althus Levalle]] auf und bringt den Maschbefehl nach Norden. Sehr weit nach Norden. Das Ziel ist [[Alwin]] nicht bekannt aber sowohl [[swain]] als auch [[Caption]] sind sauer uber den Befehl.
+[[Wilhum Dornmahl]] zieht den Toten [[Sir Eldurm Gulatte]] aus dem Wasser. Alle werden beerdigt und bei der Grabesrede tauch [[Sir Althus Levalle]] auf und bringt den Maschbefehl nach Norden. Sehr weit nach Norden. Das Ziel ist [[Alwyn Scribe]] nicht bekannt aber sowohl [[swain]] als auch [[Caption]] sind sauer uber den Befehl.
